@@ -1,2 +1,2 @@
 # XuLyAnhSo
-# Đọc trong từng file nha thấy!!!
+# Đọc trong từng file nha thầy!!!
